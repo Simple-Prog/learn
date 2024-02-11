@@ -1,2 +1,2 @@
-ik din mar jayeega kutte ki maut
+ik din mar jayeega gadhe ki maut
 jag mai sab kahege margaya madershowed
